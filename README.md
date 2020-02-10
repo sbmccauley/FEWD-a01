@@ -14,6 +14,6 @@ When I'm not doing homework, I like to:
 
 My latest cooking exploration came about this weekend.  My husband recently returned from Germany from a work trip.  Although it was a work trip, one of the things he most enjoyed in Germany besides the beer, was the schintzel.  If you're not familiar with it, schnitzel is a fried and breaded thinly sliced piece of meat.  Sounds kind of mundane, but a well prepared schnitzel is quite delicious according to my husband, so much so, that he had to recreate it for my so and me upon his return.  It turns out he was correct, and my son and I found it delicious as well, but I decided to put my own spin on it with the leftovers and turned the schnitzel into Japanese Katsudon.  Who would have thought a schnitzel and a katsudon were one in the same???....here's a photo of tonight's dinner.... German schnitzel transformed into Japanese katsudon:
 
-![schnitzel aka katsudon](https://www.instagram.com/p/B8X9S__gbib/?utm_source=ig_web_copy_link)
+![schnitzel aka katsudon](https://d3eh3svpl1busq.cloudfront.net/KQYMGOLIdXGmoAcyJsPOrQDKktgCbwtG/assets/static/optimized/rev-e62164b/wp-content/uploads/2017/07/Baked-Katsudon-II.jpg)
 
 Here's the recipe that I riffed on to make the [Katsudon](https://thewoksoflife.com/katsudon/) 
